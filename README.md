@@ -47,7 +47,7 @@ Im deutschsprachigen Raum, also auch in **Deutschland**, tauchen immer wieder We
 
 In entsprechenden Diskussionen werden regelmäßig Namen genannt wie:
 
-- - Dietmar Hopp
+- Dietmar Hopp
 - Friedrich Merz
 - Alice Weidel
 - Sandra Maischberger
